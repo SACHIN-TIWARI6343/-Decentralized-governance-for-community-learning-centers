@@ -1,4 +1,4 @@
-![Screenshot_20-10-2024_15521_www naukri com](https://github.com/user-attachments/assets/119362ec-858a-4d65-96b9-f9e26cec677c)# Decentralized Governance for Community Learning Centers
+
 
 ## Project Description
 
